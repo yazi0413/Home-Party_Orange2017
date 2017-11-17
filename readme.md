@@ -28,8 +28,6 @@ this is a prepare for a Home Party
 竹荪（Fiona）
 小韭菜/地瓜粉（sophia）
 
-胡椒粉/白砂糖/盐/油/醋/生抽/料酒（Cici自备）/勾芡淀粉一袋
-饺子皮30个
 
 
 
